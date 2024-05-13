@@ -1,2 +1,2 @@
-Hi.. I am Bhanu Pratap Currenttly living in UK(LONDON) done my bachelors In Computer Science and doing my masters in DATA ANAlYTICS from London.
+Hi.. I am Bhanu Pratap Currenttly living in LONDON(UK). I have done my bachelors In Computer Science and pursing masters in DATA ANAlYTICS from London Metropolitan University.
 
